@@ -1,4 +1,4 @@
-# DeepLearning-Sanjeev-2025-2026
+# DeepLearning-Kanishk-2025-2026
 
 
 Hey Guys I'm Kanishk.
